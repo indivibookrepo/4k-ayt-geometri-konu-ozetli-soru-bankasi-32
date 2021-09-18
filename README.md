@@ -1,0 +1,1 @@
+# 4k-ayt-geometri-konu-ozetli-soru-bankasi-32
